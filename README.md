@@ -1,0 +1,1 @@
+Szálláshely lefoglaló oldal
